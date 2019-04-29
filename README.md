@@ -7,3 +7,5 @@
 [40 岁程序员被劝退后吐槽工作难找](https://www.v2ex.com/t/491437#reply159)
 
 [怎么应对喜欢摸来摸去的领导](https://www.v2ex.com/t/473230#reply183)
+
+[公司让起花名，必须是游戏人物名称](https://www.v2ex.com/t/559752)
