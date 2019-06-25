@@ -9,3 +9,5 @@
 [怎么应对喜欢摸来摸去的领导](https://www.v2ex.com/t/473230#reply183)
 
 [公司让起花名，必须是游戏人物名称](https://www.v2ex.com/t/559752)
+
+[这是中国企业的常态吗](https://www.v2ex.com/t/577109)
